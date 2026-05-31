@@ -6,7 +6,7 @@
   <th>
   <a href="https://rentry.co/CHEVROLET-IMPALA">
    rentry</a>ㅤㅤ
-    <a href="https://guns.lol/IMPULSIVENESSS">
+    <a href="https://guns.lol/S0LDIERBOY">
       guns.lol</a>ㅤㅤ
     <a href="https://re9quiem.atabook.org/">
       新Book</a>
