@@ -11,5 +11,5 @@
     <a href="https://zombielovejuice.atabook.org/" title="send me a message.">
       新Book</a></p>
 
-<p align="center"> <a href="https://rjcallout.straw.page/" title="DO NOT SEND HARASSMENT TO RYAN IF YOU KNOW HIM."><sub>RYAN CALLOUT DOC</sub></a><br>
-<sub>i didnt make this doc; it belongs to $\color{#cc6e86}{\textsf{Mimi.}}$</sub></p>
+<p align="center"><sub>the callout situation was solved, so please do not send harassment to both parties if you know them.</sub></a><br>
+
